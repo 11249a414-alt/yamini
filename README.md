@@ -1,1 +1,1 @@
-Hi! My name is Shiny. I am learning GitHub.
+M YAMINI 
